@@ -4,4 +4,5 @@
 <p align="center">
 <strong>americah</strong> or jeremy .
 <p align="center"> whitecismlm 17 romanian
-<p align="center"> my cool <a href="https://mwii.neocities.org">neocities</a> .
+<p align="center"> my <a href="https://patreon.com/dnfer/about">patreon</a> . short, simple . less things to know about me but somewhat important before anything .
+<p align="center"> my cool <a href="https://mwii.neocities.org">neocities</a> . check it out . it's got more words and also a chatbox .
