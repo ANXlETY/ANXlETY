@@ -5,7 +5,8 @@
 <strong>americah</strong> or jeremy .
 <p align="center"> whitecismlm 17 romanian
 <p align="center"> my <a href="https://patreon.com/dnfer/about">patreon</a> . short, simple . less things to know about me but somewhat important before anything .
-<p align="center">what you will know here is that i am a dream main ( stan ) . if you do not like that, hide me . thx
+<p align="center">what you will know here is that i am a dream main ( stan ) and may be a dnfer, interacting with dnf content . if you do not like seeing one on your screen, hide me . thx
+<p align="center">also interacting with dnap / dnn / karlnap content .
 <p align="center"> my cool <a href="https://mwii.neocities.org">neocities</a> . check it out . it's got more words and also a chatbox .
 <br>
 <br>
