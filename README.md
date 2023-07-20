@@ -1,4 +1,7 @@
 <p align="center">
+🇻🇳<a href="https://rentry.co/h7ohx2">cho người nói tiếng Việt</a> .🇻🇳
+
+<p align="center">
 <img width="350" src="https://i.postimg.cc/vT66w7hz/adafdfadw2.png">
 
 <p align="center">
