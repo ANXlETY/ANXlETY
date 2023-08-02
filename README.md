@@ -7,7 +7,7 @@
 
 <p align="center">
 <strong>americah</strong> or jeremy .
-<p align="center"> whitecismlm 17 romanian
+<p align="center"> whitecismlm 18🎊 romanian
 <p align="center">what you will know here is that i am also a dream stan / main . if you do not like seeing one on your screen, hide me . thx
 <p align="center">interacting with dnf / dnap / dnn / karlnap content . fellow farfadream shipper . using bing translate para aprender frases / palabras en Español ya dejé Duolingo sjdjsfhsfj
 <p align="center"> my <a href="https://patreon.com/dnfer/about">patreon</a> . short, simple . less things to know about me but somewhat important before anything .
