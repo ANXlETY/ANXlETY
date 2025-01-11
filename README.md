@@ -1,6 +1,6 @@
-✞ <p>
+🪙 <p>
 <p>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kosugi&pause=1000&color=F7F3E3&center=true&width=465&height=76&lines=MEET+YOUR+DEMISE+%E2%9C%9E)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kosugi&duration=2222&pause=2432&color=F7F7F7&width=435&lines=TAKE+A+CHANCE+WITH+CHAAAANCE+BABY+!+!+!+!)](https://git.io/typing-svg)
 
-<p><a href='https://xn--o3h7250o.straw.page'>STRAWPAGE</a>
+<p><a href='https://snngre.tumblr.com'>TUMBLR</a>, <a href='https://twitter.com/snngre'>TWITTER</a>
